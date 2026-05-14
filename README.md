@@ -1,0 +1,1 @@
+# zha-quirk-moes-xalsoe3m
